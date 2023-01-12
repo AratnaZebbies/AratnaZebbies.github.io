@@ -1,2 +1,2 @@
 # AratnaZebbies.github.io
-Yennah Salcedo
+Yennah Faye Q. Salcedo

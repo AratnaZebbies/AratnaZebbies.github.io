@@ -6,11 +6,11 @@ Yennah Faye Q. Salcedo
 
 >editing videos
 
-> acting (drama)
+> Theater arts
 
->sleeping:)
+> :sleeping:
 
->eating AHHAHA
+> :joy: eating
 
 [facebook](https://www.facebook.com/yenahfaye.salcedo)
 
